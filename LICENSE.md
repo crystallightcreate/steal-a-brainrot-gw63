@@ -1,4 +1,4 @@
-# 
+# top Script for steal a brainrot offers the most advanced steal a brainrot Script, with one-hit kill and no cooldown. Perfect for dominating any match.
 
 
 
